@@ -1,0 +1,2 @@
+# VoicemaxxerPrivacyPolicy
+Privacy policy
